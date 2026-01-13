@@ -1,0 +1,1 @@
+# fut26-sniper-app
